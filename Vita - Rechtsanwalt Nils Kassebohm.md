@@ -44,15 +44,28 @@ Seit 2021 doziert er an der Fachhochschule Bonn-Rhein-Sieg als Lehrbeauftragter.
 
 ## Vorträge
 
-+ 07. bis 12. Dezember 2020<br/>Bonner Woche „Cybercrime“<br/>Rechtsanwalt Kassebohm referiert gemeinsam mit Rechtsanwalt Hoppe zu verschiedenen Cybercrime-Themen, online
-+ 27. September 2019<br/>Bonner Freitag 2019: "Umfangsverfahren"<br/>Rechtsanwalt Nils Kassebohm referiert zum Thema "Umfangsverfahren aus der Praxis betrachtet - Ein Überblick mit Beispielen" im Centro Hotel Residence, Bonn
-+ 06. November 2018<br/>"Cyberangriffe - Neue Herausforderungen für die Praxis"<br/>Vortrag von Rechtsanwalt Nils Kassebohm beim dispute resolution forum (drf) im Industrie-Club e.V., Elbertfelder Str. 6, 40213 Düsseldorf
-+ 19. September 2018<br/>Bußgeldverfahren nach § 56 GwG: Rechtlicher Rahmen, Ablauf und Verteidigungsmöglichkeiten<br/>Vortrag von Rechtsanwalt Nils Kassebohm anlässlich der Fachtagung "Geldwäscheprävention in Sparkassen", veranstaltet vom Sparkassenverband Baden-Württemberg, Pariser Platz 3A, Stuttgart
-+ 29. Juni 2018<br/>Die elektronische Akte in Steuerstrafsachen<br/>Vortrag von Rechtsanwalt Nils Kassebohm im Rahmen der Tagung "Bonner Freitag 2018 - Steuerstrafrecht" im Centro Hotel Residence, Bonn
-+ 14. Juni 2018<br/>Bußgeldverfahren nach § 56 GwG: Rechtlicher Rahmen, Ablauf und Verteidigungsmöglichkeiten<br/>Vortrag von Rechtsanwalt Nils Kassebohm anlässlich der Fachtagung "Geldwäschebekämpfung", veranstaltet von der Sparkassenakademie Hessen Thüringen, Eberlestr. 1, 65817 Eppstein
-+ 30. Juni 2017<br/>Bonner Freitag: Wirtschaftsstrafrecht und internationaler Terrorismus<br/>Veranstaltung des Bonner Anwaltvereins, organisiert von RA Nils Kassebohm, mit Prof. Dr. Mark Zöller, Dr. Sebastian Wollschläger, Prof. Dr. Volkmar Mehle, Dr. Markus Adick, Dr. Daniel Neuhöfer u.a., Günnewig Hotel Residence, Bonn
-+ 25. Mai 2017<br/>Strafrecht berechenbar machen? Hilft der Computer?<br/>Vortrag von RA Nils Kassebohm auf dem 68. Deutschen Anwaltstag in Essen, 13.30 Uhr, Saal Rheinland, Messe Süd, Essen
-+ 01. Juli 2016<br/>"Globalisierung im Wirtschaftsstrafverfahren – grenzüberschreitenden Datenbeschaffung im Ermittlungsverfahren"<br/>Vortrag von Rechtsanwalt Kassebohm auf der Fortbildungsveranstaltung "Bonner Freitag – neues Wirtschaftsstrafrecht", Bonn
-+ 18. Mai 2016<br/>"Akteneinsicht 2.0 – elektronischer Rechtsverkehr in Strafsachen und seine Auswirkungen"<br/>Vortrag von Rechtsanwalt Kassebohm anlässlich der Mitgliederversammlung der Strafverteidiger Vereinigung-NRW e.V.
-+ 04. Oktober 2013<br/>„Sammeln und Verwerten. Transnationale Informationsgewinnung und Rechtshilfe“<br/>Vortrag von Rechtsanwalt Kassebohm anlässlich des 6. EU-Strafrechtstags
-+ 08. November 2003<br/>"Rechtliche Einordnung und Darstellung spezieller Probleme des Datenklaus"<br/>Vortrag von Rechtsanwalt Kassebohm auf dem 4. Internetforum im Rahmen des Strafverteidiger-Kolloquiums der Arbeitsgemeinschaft Strafrecht im DAV 2003 in Köln
+## Vorträge
+
+07. bis 12. Dezember 2020<br/>Bonner Woche „Cybercrime“<br/>Rechtsanwalt Kassebohm referiert gemeinsam mit Rechtsanwalt Hoppe zu verschiedenen Cybercrime-Themen, online
+
+27. September 2019<br/>Bonner Freitag 2019: "Umfangsverfahren"<br/>Rechtsanwalt Nils Kassebohm referiert zum Thema "Umfangsverfahren aus der Praxis betrachtet - Ein Überblick mit Beispielen" im Centro Hotel Residence, Bonn
+
+06. November 2018<br/>"Cyberangriffe - Neue Herausforderungen für die Praxis"<br/>Vortrag von Rechtsanwalt Nils Kassebohm beim dispute resolution forum (drf) im Industrie-Club e.V., Elbertfelder Str. 6, 40213 Düsseldorf
+
+19. September 2018<br/>Bußgeldverfahren nach § 56 GwG: Rechtlicher Rahmen, Ablauf und Verteidigungsmöglichkeiten<br/>Vortrag von Rechtsanwalt Nils Kassebohm anlässlich der Fachtagung "Geldwäscheprävention in Sparkassen", veranstaltet vom Sparkassenverband Baden-Württemberg, Pariser Platz 3A, Stuttgart
+
+29. Juni 2018<br/>Die elektronische Akte in Steuerstrafsachen<br/>Vortrag von Rechtsanwalt Nils Kassebohm im Rahmen der Tagung "Bonner Freitag 2018 - Steuerstrafrecht" im Centro Hotel Residence, Bonn
+
+14. Juni 2018<br/>Bußgeldverfahren nach § 56 GwG: Rechtlicher Rahmen, Ablauf und Verteidigungsmöglichkeiten<br/>Vortrag von Rechtsanwalt Nils Kassebohm anlässlich der Fachtagung "Geldwäschebekämpfung", veranstaltet von der Sparkassenakademie Hessen Thüringen, Eberlestr. 1, 65817 Eppstein
+
+30. Juni 2017<br/>Bonner Freitag: Wirtschaftsstrafrecht und internationaler Terrorismus<br/>Veranstaltung des Bonner Anwaltvereins, organisiert von RA Nils Kassebohm, mit Prof. Dr. Mark Zöller, Dr. Sebastian Wollschläger, Prof. Dr. Volkmar Mehle, Dr. Markus Adick, Dr. Daniel Neuhöfer u.a., Günnewig Hotel Residence, Bonn
+
+25. Mai 2017<br/>Strafrecht berechenbar machen? Hilft der Computer?<br/>Vortrag von RA Nils Kassebohm auf dem 68. Deutschen Anwaltstag in Essen, 13.30 Uhr, Saal Rheinland, Messe Süd, Essen
+
+01. Juli 2016<br/>"Globalisierung im Wirtschaftsstrafverfahren – grenzüberschreitenden Datenbeschaffung im Ermittlungsverfahren"<br/>Vortrag von Rechtsanwalt Kassebohm auf der Fortbildungsveranstaltung "Bonner Freitag – neues Wirtschaftsstrafrecht", Bonn
+
+18. Mai 2016<br/>"Akteneinsicht 2.0 – elektronischer Rechtsverkehr in Strafsachen und seine Auswirkungen"<br/>Vortrag von Rechtsanwalt Kassebohm anlässlich der Mitgliederversammlung der Strafverteidiger Vereinigung-NRW e.V.
+
+04. Oktober 2013<br/>„Sammeln und Verwerten. Transnationale Informationsgewinnung und Rechtshilfe“<br/>Vortrag von Rechtsanwalt Kassebohm anlässlich des 6. EU-Strafrechtstags
+
+08. November 2003<br/>"Rechtliche Einordnung und Darstellung spezieller Probleme des Datenklaus"<br/>Vortrag von Rechtsanwalt Kassebohm auf dem 4. Internetforum im Rahmen des Strafverteidiger-Kolloquiums der Arbeitsgemeinschaft Strafrecht im DAV 2003 in Köln
