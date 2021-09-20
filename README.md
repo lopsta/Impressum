@@ -18,7 +18,7 @@ Nils Kassebohm ist Mitglied der Rechtsanwaltskammer Köln. Die Berufsbezeichnung
   
 ## Berufsrechtliche Regelungen:
 
-Die geltenden berufsrechtlichen Regelungen können auf der Homepage der Bundesrechtsanwaltskammer https://www.brak.de unter https://www.brak.de/fuer-anwaelte/berufsrecht/ eingesehen werden:
+Nils Kassebohm übt den Beruf des Rechtsanwalts nach der Bundesrechtsanwaltsordnung (BRAO), der Berufsordnung für Rechtsanwälte (BORA), dem Rechtsanwaltsvergütungsgesetz (RVG), der Fachanwaltsordnung (FAO) und den Berufsregeln der Rechtsanwälte der Europäischen Gemeinschaft aus.Die geltenden berufsrechtlichen Regelungen können auf der Homepage der Bundesrechtsanwaltskammer https://www.brak.de unter https://www.brak.de/fuer-anwaelte/berufsrecht/ eingesehen werden:
 
 	Bundesrechtsanwaltsordnung (BRAO)
 	Berufsordnung für Rechtsanwälte (BORA)
