@@ -5,25 +5,25 @@ Impressum und Verbraucherangaben
 
 ## Verantwortlich für den Inhalt dieser Website (Verantwortlicher):
 
-  Nils Kassebohm
-  Oxfordstraße 4 | 53111 Bonn
-  Tel.: (0228) 90 90 58-0
-  Fax.: (0228) 90 90 58-58
-  E-Mail: info@lopsta.de
+	Nils Kassebohm
+	Oxfordstraße 4 | 53111 Bonn
+	Tel.: (0228) 90 90 58-0
+	Fax.: (0228) 90 90 58-58
+	E-Mail: info@lopsta.de
 
 ## Rechtsanwaltskammer
 Nils Kassebohm ist Mitglied der Rechtsanwaltskammer Köln. Die Berufsbezeichnung "Rechtsanwalt" wurde Nils Kassebohm in Deutschland verliehen. Die Adresse der Rechtsanwaltskammer Köln lautet:
 
-  Rechtsanwaltskammer Köln, Riehler Straße 30, 50668 Köln.
+	Rechtsanwaltskammer Köln, Riehler Straße 30, 50668 Köln.
   
 ## Berufsrechtliche Regelungen:
 
 Die geltenden berufsrechtlichen Regelungen können auf der Homepage der Bundesrechtsanwaltskammer https://www.brak.de unter https://www.brak.de/fuer-anwaelte/berufsrecht/ eingesehen werden:
 
-    Bundesrechtsanwaltsordnung (BRAO)
-    Berufsordnung für Rechtsanwälte (BORA)
-    Rechtsanwaltsvergütungsgesetz (RVG)
-    Berufsregeln der Rechtsanwälte der Europäischen Gemeinschaft (CCBE)
+	Bundesrechtsanwaltsordnung (BRAO)
+	Berufsordnung für Rechtsanwälte (BORA)
+	Rechtsanwaltsvergütungsgesetz (RVG)
+	Berufsregeln der Rechtsanwälte der Europäischen Gemeinschaft (CCBE)
 
 ## Anwaltliche Berufshaftplichtversicherung:
 
